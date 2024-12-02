@@ -3,4 +3,4 @@ having fun
 
 This is a link to my [looking forward](lookingforward.html) about my future with digital humanaities.
 
-This is a link to my [https://printinginprisons.org/blog/nobrien/.html] 
+This is a link to my [printinginprisons](https://printinginprisons.org/blog/nobrien/.html) 
