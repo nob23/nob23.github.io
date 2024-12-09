@@ -1,4 +1,4 @@
-My Statement about the course.
+My Jounrey Through Digital Humanties
 
 
  
