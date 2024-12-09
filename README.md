@@ -1,5 +1,3 @@
-Nick O'Briens HomePage  
-
 My Statement about the course.
 
 
