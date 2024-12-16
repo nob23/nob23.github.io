@@ -1,4 +1,4 @@
-My Jounrey Through Digital Humanties
+My Jounrey Through Digital Humanities
 
 Multiple themes and topics emerged throughout this semester surrounding digital humanities. To begin, we focused on the background of digital humanities to form an understanding of what they are. We discussed the archives, and how these types of data can be preserved to educate future generations about our past, and even our future. To extend on this, my workshop I attended in Philly I made a cassette tape of my favorite songs. In this workshop, I created an archive for myself that will hold onto a part of my history for the future. This process reminded me of the Dorethy Berry reading “The House the Archives Built”, and how this small piece of technology can become an archive for our future. This workshop related directly to what we are doing in class, especially our visit to Van Pelt where we looked at the immense amount of archives Penn has to offer. During this trip, I experienced a part of our past I never knew was there, and in that moment I realized how important the archives are, and how my cassette tape is part of that importance for generations to come.
 
